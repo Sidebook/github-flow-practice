@@ -1,5 +1,6 @@
 ## SubSection 1
 
+This is not a test.
 Mind can be observed and known. But you can know directly only your own mind, and not another's. You may look into my face and guess the meaning of the smile or frown, and so read something of the mind's activity. But that is not always right. You may learn to recognize my features, know my boice, respond to the clasp of my hand; but the mind, the consciousness, which feels my joys and sorrows, You can never know completely.
 
 Therefore, it follows that only you can ever know you and only I can ever know I directly. Between your consciousness and mine, there exists a wide gap that cannot be bridged. We may work together, live together, come to love or hate each other. But our mind can never be understood entirely by other people. We must live our own lives, think our own thoughts, and arrive at our own destiny.
